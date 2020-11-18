@@ -8,4 +8,4 @@ This platform, as a charity organization, has set up some sign language teaching
 
 【My】General setup information, including adding information and booking course information.
 
-If you have any questions, please contact technical support email :selig722718@sina.cn. Thank you for your support.
+If you have any questions, please contact technical support email :KatieanneTuffreymX@aol.com. Thank you for your support.
